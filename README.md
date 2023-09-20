@@ -1,7 +1,7 @@
 - 👋 oii, I’m @cristopher
 - 👀 É os D
 - 🌱 longe dos perigos noturnos
-- 💞️ 16 anos de pura beleza
+- 💞️ @erik_trk
 - 📫 160<3
 
 <!---
