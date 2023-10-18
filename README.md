@@ -1,7 +1,7 @@
 - 👋 oii, I’m @cristopher
 - 👀 É os D
 - 🌱 longe dos perigos noturnos
-- 💞️ @erik_trk
+- 💞️ @erik_cja
 - 📫 160<3
 
 <!---
